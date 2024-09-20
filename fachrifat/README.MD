@@ -1,0 +1,1 @@
+Halo gais nama saya ripat dari smkn 26 jakarta
